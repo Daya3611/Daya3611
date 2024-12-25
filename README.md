@@ -5,11 +5,11 @@
 
 
 
-- 👨‍💻 my projects are available at [https://dayanandgawade.thedpl.eu.org/](https://dayanandgawade.thedpl.eu.org/)
+- 👨‍💻 my projects are available at [https://dayanandgawade.in/](https://dayanandgawade.in/)
 
-- 📝 I regularly post on Instagram [https://instagram.com/dayanandgawade8](https://instagram.com/dayanandgawade8)
+- 📝 I regularly post on Instagram [https://instagram.com/_daya3611](https://instagram.com/_daya3611)
 
-- 📫 How to reach me **dayanandgawade@dayanandpvtltd.eu.org**
+- 📫 How to reach me **hi@dayanandgawade.in**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/dayanandgawade](https://www.linkedin.com/in/dayanandgawade)
 
